@@ -8,7 +8,5 @@
 
 📫 Feel free to reach out to me via email at za.khiraoui@gmail.com or connect with me on LinkedIn zkhiraoui. Let's exchange ideas and embark on exciting ventures together!
 
-😄 Pronouns: He/Him
-
 ⚡ Fun fact: When I'm not immersed in tech, you can find me exploring the great outdoors, experimenting with new recipes in the kitchen, or diving into the mountains.
 
